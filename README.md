@@ -4,13 +4,13 @@ Hello Philippines, Hello World! 🇵🇭🌍
 <br />Ako po si **Miguel Angelo**, a.k.a @meythegreat ✨
 <br />You may probably ask me why I took IT? Well, I wanted this course since I was in sixth grade, and I don't regret this decision at all.
 
-<ins>**Sino ba talaga ako (para sayo?)**</ins>
+### <ins>Sino ba talaga ako?</ins>
 - A TV enthusiast (specifically game, variety, contest, and reality shows)
 - Pop culture boi 
 - Wikipedia editor since 2022
 - Melophile & a certified Swiftie since 2014
 
-<ins>**Wanna know more about me?**</ins>
+### <ins>Wanna know more about me?</ins>
 - _"How to reach me?"_ I-PM mo na lang ako. Chosera!
   - **@sesangengucci** (TikTok & Facebook)
   - **@meythegreat** sa inyong mga suking tindahan.
