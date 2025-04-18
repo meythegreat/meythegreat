@@ -7,7 +7,7 @@ Hello Philippines, Hello World! 🇵🇭🌍
 ### <ins>Sino ba talaga ako?</ins>
 - A TV enthusiast (specifically game, variety, contest, and reality shows)
 - Pop culture boi 
-- Wikipedia editor since 2022
+- Wikipedia editor since 2022 — visit my [userbox](https://en.wikipedia.org/wiki/User:Migsbasinillo)!
 - Melophile & a certified Swiftie since 2014
 
 ### <ins>Wanna know more about me?</ins>
