@@ -7,13 +7,15 @@ Hello Philippines, Hello World! 🇵🇭🌍
 ### <ins>Sino ba talaga ako?</ins>
 - A TV enthusiast (specifically game, variety, contest, and reality shows)
 - Pop culture boi 
-- Wikipedia editor since 2022 — visit my [userbox](https://en.wikipedia.org/wiki/User:Migsbasinillo)!
+- Wikipedia editor since 2022 — visit my [userbox](https://en.wikipedia.org/wiki/User:Sesangengucci)!
 - Melophile & a certified Swiftie since 2014
 
 ### <ins>Wanna know more about me?</ins>
 - _"How to reach me?"_ I-PM mo na lang ako. Chosera!
-  - **@sesangengucci** (TikTok & Facebook)
+  - **@sesangengucci** (Facebook)
   - **@meythegreat** sa inyong mga suking tindahan.
+  - **@miggywitdahoodi** (Instagram)
+  - **@meydgr8** (TikTok)
 - _"Pronouns?"_ You may use either **he/him** or **they/them**.
 - _"Fun facts about yourself?"_
   - I was supposed to enroll at Nursing but I insisted my mother to take IT instead. Imagine me being a nurse – I am really clumsy. Que horror!
